@@ -1,2 +1,3 @@
 # HowILikeMyParatha
-This is a list of my favoraite parathas and how i like them to be prepared:)
+This is a recipe book for some of the most famous indian breakfast ideas.
+
